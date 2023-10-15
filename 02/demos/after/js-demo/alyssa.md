@@ -1,4 +1,4 @@
-# Intruduction of Alyssa
+# Introduction of Alyssa
 
 My name is Alyssa. I am in grade 9 of
 [Maple High School](http://www.yrdsb.ca/schools/maple.hs/Pages/default.aspx).
