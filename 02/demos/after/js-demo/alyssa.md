@@ -13,7 +13,7 @@ My name is Alyssa. I am in grade 9 of
 
 - Instant noodle
 - Beef
-- Cheeze
+- Cheese
 
 Here is my **strength**
 
